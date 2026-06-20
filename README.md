@@ -24,6 +24,6 @@ Honestly? **ITS BASICALLY GETTING TO KNOW THINGS.** We are figuring out how sand
   * **Role:** DA G>O>A>T 
   * **Responsibility:** responsible.
 
-  * **Sherry** 
+* **Sherry** 
   * **Role:** Ratta 
   * **Responsibility:** Datta sahab ki Ghori.
