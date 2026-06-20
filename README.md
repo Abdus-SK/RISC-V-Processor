@@ -25,5 +25,5 @@ Honestly? **ITS BASICALLY GETTING TO KNOW THINGS.** We are figuring out how sand
   * **Responsibility:** responsible.
 
 * **Sherry** 
-  * **Role:** Ratta 
-  * **Responsibility:** Datta sahab ki Ghori.
+  * **Role:** Ashirwaad 
+  * **Responsibility:** Baray Guru.
