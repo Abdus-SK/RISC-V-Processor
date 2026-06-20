@@ -23,3 +23,7 @@ Honestly? **ITS BASICALLY GETTING TO KNOW THINGS.** We are figuring out how sand
 * **Abdus Salam Khan** 
   * **Role:** DA G>O>A>T 
   * **Responsibility:** responsible.
+
+  * **Sherry** 
+  * **Role:** Ratta 
+  * **Responsibility:** Datta sahab ki Ghori.
