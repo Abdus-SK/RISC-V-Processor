@@ -9,8 +9,8 @@ Honestly? **ITS BASICALLY GETTING TO KNOW THINGS.** We are figuring out how sand
 ## 👥 The Dream Team
 
 * **M. Arham Ali Khan** 
-  * **Role:** Sugar Daddy
-  * **Responsibility:** ready to give his ASS for the project 
+  * **Role:** RTL Engineer
+  * **Responsibility:** ready to give his soul for the project.
 
 * *Muhammad Raza*
   * **Role:** *Unpaid Worker*
