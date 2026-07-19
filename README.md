@@ -21,7 +21,7 @@ Honestly? **ITS BASICALLY GETTING TO KNOW THINGS.** We are figuring out how sand
   * **Responsibility:** *Doing everything*
 
 * **Abdus Salam Khan** 
-  * **Role:** DA G>O>A>T 
+  * **Role:** Faheem ka G>O>A>T>A 
   * **Responsibility:** responsible.
 
 * **Sherry** 
